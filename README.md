@@ -1,0 +1,6 @@
+- 👋 Hi, I am a student from Yunnan University majoring in atmospheric science 👨‍🎓
+- 👀 I’m interested in study of atmospheric phenomena and their causes ❤️
+- 💞️ I got this username because of a girl named Wenwen Zhang.
+- 📫 If you want to contact me, you can email me at w3096260188@gmail.com.当然也可以添加我的微信: Ensurezwwyyds
+- 😄 I will continue to strive to learn about the atmosphere to facilitate my better understanding of the world.
+- ⚡I am looking forward to you getting in touch with me so that we can learn together!
